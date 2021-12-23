@@ -1,1 +1,0 @@
-# joshuadeguzman.net
